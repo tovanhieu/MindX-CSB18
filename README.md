@@ -8,3 +8,4 @@
 #### Buổi 6: https://youtu.be/VnBVuanOjh4
 #### Buổi 7: https://youtu.be/ocgiiwCrUXQ
 #### Buổi 11: https://youtu.be/7EW3Pc-AG6w
+#### Buổi 12: https://youtu.be/Nk3eVi6JnFU
